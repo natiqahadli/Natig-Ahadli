@@ -1,1 +1,0 @@
-# Natig-Ahadli
